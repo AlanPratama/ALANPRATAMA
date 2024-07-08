@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **enigma turing class**
 
-- 👨‍💻 All of my projects are available at [alanpratama.com](alanpratama.com)
+- 👨‍💻 All of my projects are available at [alanpratama.com](https://alanpratama.com)
 
 - 📫 How to reach me **pralan76@gmail.com**
 
